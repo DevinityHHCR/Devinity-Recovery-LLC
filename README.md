@@ -1,2 +1,2 @@
 # Devinity-Recovery-LLC
-We offer Post  Op surgery assistance and wound care supplies
+We offer Post  Op surgery care services and wound care supplies
